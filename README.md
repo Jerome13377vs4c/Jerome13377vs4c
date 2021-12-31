@@ -1,4 +1,4 @@
-### Hi there 👋
+### Between the cup and the lip a morsel may slip. 👋
 
 <!--
 **Jerome13377vs4c/Jerome13377vs4c** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
